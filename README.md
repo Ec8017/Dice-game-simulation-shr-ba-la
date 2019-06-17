@@ -1,0 +1,2 @@
+# Dice-game-simulation-shr-ba-la
+shr ba la , also known as eighteen, wash guava, hi fa,is a common dice gambling game in Taiwan. Sepat Pingpu's original resident language is four, and the four-bar vote is made by four. The equipment used is 4 six-sided dice and a large soup bowl. During the game, players will yell at each other 18, BG, joke like to sing each other, inspire themselves, and play very lively.
